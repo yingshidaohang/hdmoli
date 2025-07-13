@@ -1,6 +1,6 @@
 <h2>HDmoli官网入口 - 高品质在线影视资源|下载|网页|打不开</h2>
 <p>HDmoli 是一个专注于提供高清、无删减、无广告的影视资源的在线平台，致力于为用户带来极致的观影体验。该平台提供了丰富的影视内容，涵盖电影、电视剧、综艺、动漫等多种类型，无论是最新上映的热门影片还是经典老剧，都能在这里找到。HDmoli 的资源全部免费，无需注册或登录即可在线观看，同时支持电脑和移动设备访问，自适应不同设备的分辨率。此外，HDmoli 的界面简洁，加载速度快，操作直观，几乎无学习成本，即点即播。</p>
-<p><strong>一键访问：</strong><a href="https://www.imi123.cn/sites/5856.html" target="_blank"><strong>HDmoli最新网址</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://hdmoli.xxsnav.com/" target="_blank"><strong>HDmoli最新网址</strong></a></p>
 <p><strong>一键访问：</strong><a href="https://wangpanziyuan.pages.dev/" target="_blank"><strong>电子书/4K电影/无损音乐资源下载资源包</strong></a></p>
 <p><strong>一键访问：</strong><a href="http://ip.harmonylink.net/share/e82025" target="_blank"><strong>海外代理网络·可看蓝光4K影视</strong></a></p>
 <h3><strong>功能特点</strong></h3>
